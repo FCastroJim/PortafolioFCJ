@@ -1,2 +1,0 @@
-# PortafolioFCJ
-Desarrollador en proceso
